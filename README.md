@@ -1,0 +1,1 @@
+[https://cristobal-montecino.github.io/InfinityWord](https://cristobal-montecino.github.io/InfinityWord)
